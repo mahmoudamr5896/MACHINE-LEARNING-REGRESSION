@@ -6,12 +6,9 @@
 
 
 
-![images](https://user-images.githubusercontent.com/100859586/216324740-7465bcb1-32f5-4bf8-9af0-048defb0e129.png)
+![2 3](https://user-images.githubusercontent.com/100859586/216325730-192b4edc-d465-4829-bee4-23482b042b6c.png)
 
 
-
-
-![images](https://user-images.githubusercontent.com/100859586/216325266-9a96d425-c60e-42c2-b84e-6e85d01c6d4d.png)
 
 
 
